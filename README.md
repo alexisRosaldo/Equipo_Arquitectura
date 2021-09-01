@@ -15,3 +15,6 @@ ___
 
 
 ![Me](https://user-images.githubusercontent.com/62186281/131600063-6813d14a-b9ec-4425-ad68-31a647f00ccb.jpg)
+___
+-Amaury Morales  
+<img src="https://drive.google.com/uc?id=1Scms2V16wI9C7rpMUZB7YSSBOBG7u8Gn" width="150">
